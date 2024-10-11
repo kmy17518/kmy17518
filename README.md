@@ -1,4 +1,4 @@
-### Minyeong Kim
+### Minyeong Kim (김민영)
 
 Hello!
 
